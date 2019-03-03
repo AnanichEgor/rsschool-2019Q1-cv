@@ -4,7 +4,7 @@ Software Engineer C# .NET Core
 
 +375 29 6 333 948
 
-aevbox@gmail.com
+ev.ananich@gmail.com
 
 ## About me
 
